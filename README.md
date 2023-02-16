@@ -1,4 +1,4 @@
-![Pasted image 20220408103528.png](https://github.com/upr1se/site/blob/main/Pasted%20image%2020220408103528.jpg)
+![Pasted image 20220408103528.png](https://github.com/upr1se/site/blob/main/Pasted%20image%2020220408103528.png)
 # ИНСТИТУТ ЭКОНОМИКИ НЕДВИЖИМОСТИ
 
 [ОБ ИНСТИТУТЕ]  | [ПРЕПОДАВАТЕЛИ] | [СВЕДЕНИЯ ОБ ОБРАЗОВАТЕЛЬНОЙ ОРГАНИЗАЦИИ] | [КОНТАКТЫ]
